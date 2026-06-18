@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Moonlight2009
 - 👀 I’m interested in drawing and gaming
-- 🌱 I’m currently learning normal highschool subjects
+- 🌱 I’m currently learning digital tlevel
 - 💞️ I’m looking to collaborate on whatever I want to collaborate on
 - 📫 How to reach me IDK
 
